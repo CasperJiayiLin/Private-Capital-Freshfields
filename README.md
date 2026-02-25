@@ -1,0 +1,1 @@
+Completed a private equity job simulation for the Freshfields Private Capital team, supporting due diligence and transaction work. Reviewed corporate, commercial and employment documents in a VDR, flagged key risks and unusual terms using a tracker. Cross-checked specialist queries (Tax/IP), updated Q&A logs, and drafted a concise internal email on outcomes and priorities.
